@@ -6,3 +6,7 @@ Example:-
 
 #preta 
 Hindu Mythology. a wandering or disturbed ghost.
+
+#Mansplain
+(of a man) Explain (something) to someone, typically a woman, in a manner regarded as condescending or patronizing.
+
